@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Sasank Karki.
 - 👀 I’m interested in Programming,Designing,Movies,History,etc
 - 🌱 I’m currently learning to how to learn.
-- 📫 How to reach me : karkisasank@gmail.com
+- 📫 How to reach me : karkisasan36k@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: You're what you think.
 
